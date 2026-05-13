@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Atom for PC | Atom for Windows script with Atom for PC | Atom for Windows premium Script: keyboard-shortcuts & multiple-cursors. Featuring keyboard-shortcuts and
 
 
 
